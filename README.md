@@ -2,4 +2,5 @@
 - 👀 I’m interested in leetrig
 - 🌱 vegg
 - 💞️ loven't
+deiogo me segueeeeeeeeeeee
 
